@@ -1,2 +1,2 @@
 # portfolio
-Link: https://ripudaman1582016/Ripudaman-Bhardwaj.github.io/
+Link: https://ripudaman1582016.github.io/Ripudaman-Bhardwaj/
